@@ -1,6 +1,6 @@
 # Termos de Uso do Coffee Codex
 
-**Última atualização:** 28 de abril de 2026
+**Última atualização:** 28 de abril de 2026.
 
 Estes Termos regulam o uso do aplicativo Coffee Codex, com contato em contato@cafesinn.com.br. Ao criar conta, acessar ou usar o aplicativo, você declara que leu, compreendeu e concorda com estes Termos.
 
